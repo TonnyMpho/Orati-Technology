@@ -1,2 +1,0 @@
-# Orati-Technology
-My work
